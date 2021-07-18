@@ -1,2 +1,1 @@
-# Sanaullah-s-Website
-Hello I'm sanaullah a web developer and if you want to know more about me Just check out my website.....
+
